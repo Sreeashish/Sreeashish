@@ -23,7 +23,7 @@ You can call me SREE
 ## Let's Connect!
 
 - [LinkedIn](https://www.linkedin.com/in/sreeashish-dj)   
-- [Portfolio](https://play.google.com/store/apps/details?id=com.truck.rest.stop.tycoon.simulation.business.games&hl=en-US)  
+- [Portfolio](https://sreeprofessionalspace.my.canva.site/)
 
 ---
 
